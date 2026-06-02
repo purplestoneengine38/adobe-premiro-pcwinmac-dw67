@@ -1,4 +1,4 @@
-# 
+# Native Adobe Premiere Pro filters for Mac OS | Advanced Adobe Premiere Pro filters for PC Windows. Featuring 4K-export and rotoscoping — optimized for maximum performance on every platform.
 
 
 
